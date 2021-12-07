@@ -1,1 +1,0 @@
-Plano Inclina com inclinação α
